@@ -1,7 +1,8 @@
 <h2>磁力爬官方网站 - 免费磁力搜索工具最新网址|发布页</h2>
 <p>磁力爬是一个专注于磁力链接搜索的智能引擎，旨在为用户提供高效、便捷的资源搜索服务。它通过先进的爬虫技术，自动抓取互联网上的公开资源，整合成一个庞大的磁力链接数据库，使用户能够快速找到所需的电影、音乐、书籍、游戏等资源。磁力爬的特点在于其高速高效的搜索能力、覆盖广泛的资源库以及用户友好的界面设计。此外，磁力爬还注重隐私保护，无广告干扰，提供安全可靠的搜索体验。</p>
 <p><strong>一键访问：</strong><a href="https://www.litxdh.com/sites/ci-li-pa.html" target="_blank"><strong>磁力爬最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点</strong></p>
 <p><strong>高速搜索与智能化筛选</strong><br>磁力爬利用优化的搜索算法，能够快速匹配用户输入的关键词，并根据文件大小、种子热度等因素进行智能筛选，帮助用户快速定位到高质量的资源。</p>
